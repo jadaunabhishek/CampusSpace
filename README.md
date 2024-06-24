@@ -1,5 +1,6 @@
 
-[CampusSpace.pdf](https://github.com/user-attachments/files/15959843/CampusSpace.pdf)
+![Uploading CampusSpace.png…]()
+
 
 
 SRM INSTITUTE OF SCIENCE AND TECHNOLOGY is widely recognized for its exceptional facilities, which we believe set a standard that every other educational institution aspires to achieve. With top-tier leaders, management, faculties, technology, and a multitude of other facilities, SRM is a leading institution in higher education.
